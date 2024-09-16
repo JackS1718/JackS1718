@@ -1,7 +1,7 @@
 ## Hi there 👋
 😺
 
-https://github.com/JackS1718/JackS1718/issues/1#issue-2528572921
+![image_123650291 (1)](https://github.com/user-attachments/assets/e0ae7c62-cae7-4cf7-a7a5-4245b9fcac24)
 <!--
 **JackS1718/JackS1718** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
