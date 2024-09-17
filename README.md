@@ -1,9 +1,9 @@
-## Hi there 👋
+## Hi there 👋 ✨
 😺
 
 
 
-**JackS1718/JackS1718** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*JackS*
 
 * 🎓 I’m a graphic designer and publicist
 * 🔭 I’m currently learning Back End with DevOps
