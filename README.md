@@ -1,4 +1,4 @@
-## Hi there  😺 *JackS* ✨
+## Hi there  😺 *I´m JackS* ✨
 
 
 * 🎓 I’m a graphic designer and publicist
