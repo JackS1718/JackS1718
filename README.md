@@ -1,9 +1,5 @@
-## Hi there 👋 ✨
-😺
+## Hi there  😺 *JackS* ✨
 
-
-
-*JackS*
 
 * 🎓 I’m a graphic designer and publicist
 * 🔭 I’m currently learning Back End with DevOps
